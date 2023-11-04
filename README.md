@@ -10,3 +10,7 @@ i came to iitk on 27th 0ct 2022.
 My jee rank was 3415. I got F6 as my wing.
 <br>
 My roommates were Gavneesh and Anant Srivastava
+<br>
+My best Friend here is Kuldeepak dhar dwivedi, Omkar Prusty, Surendra.
+<br>
+Our vibes matches. 
